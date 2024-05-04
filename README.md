@@ -1,3 +1,3 @@
 # About me
 
-This traveler is lazy
+This traveler is very lazy
